@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @yandrebez
 - 👀 I’m interested in Developing new stuff and gaming
-- 🌱 I’m currently learning BIT Degree
+- 🌱 BIT Degree
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me yandrebez007@gmail.com
 
